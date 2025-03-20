@@ -1,7 +1,9 @@
-![giggle](https://64.media.tumblr.com/163740cd252a9e9ddd50fedd3e0d4a42/b90aa4a8c9e95e1c-4a/s640x960/922c645ba9551d37d32e348975177d1c5cdc9fb0.jpg)
+![giggle](https://64.media.tumblr.com/140c225d93f8031c415a6730a450fabb/a1991c2ceb59554c-ff/s1280x1920/c1e39a8b373e5d1ddebffe8c6436a8e9f35862ac.pnj)
 
-![Screenshot_2](https://i.imgur.com/Mkqh8FB.png)
+![Screenshot_2](https://i.postimg.cc/K8F4cbnB/5c53fbca-d29d-4bd7-aba7-9aeaca9b49aa.jpg)
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=1600&pause=27&color=F5759F&width=435&lines=Milkshakes+and+cat+eyes;Lipstick+and+French+fries;Internalize+so+much;But+so+little;Don't+make+us+feel+belittled;World+!)](https://git.io/typing-svg)
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Fira+Code&duration=2000&pause=200&color=F5759F2B&width=435&lines=read+rentry+!+(*%E2%81%A0%C2%B4%E2%80%BF%EF%BD%80%E2%81%A0)%E2%81%A0%EF%BD%A1%E2%81%A0*%EF%BE%9F%E2%81%A0%2B)](https://git.io/typing-svg)
-![rahh](https://64.media.tumblr.com/a770bcd12b20a26f59306909503fd23f/b90aa4a8c9e95e1c-87/s400x600/d12ad7afae637b53cd5a260f7628207c8136b3e9.webp)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fredoka+One&duration=1200&pause=690&color=FDDD77&width=435&lines=Why+don't+you+sit+right+down+and+%E2%80%94;Stay+awhile+%3F+(%E2%81%A0%C2%A0%E2%81%A0%E2%97%9C%E2%81%A0%E2%80%BF%E2%81%A0%E2%97%9D%E2%81%A0%C2%A0%E2%81%A0)%E2%81%A0%E2%99%A1;We+like+the+same+things+and+I+%E2%80%94;Like+your+style+!+(%E2%81%A0%C2%A0%E2%81%A0%EA%88%8D%E2%81%A0%E1%B4%97%E2%81%A0%EA%88%8D%E2%81%A0))](https://git.io/typing-svg)
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fredoka+One&duration=2200&pause=1000&color=FDDD7729&width=435&lines=Read+rentry+!+(%E2%81%A0*%E2%81%A0%C2%B4%E2%81%A0%CF%89%E2%81%A0%EF%BD%80%E2%81%A0*%E2%81%A0))](https://git.io/typing-svg)
+
+![rahh](https://64.media.tumblr.com/29145ff8892c78614320d8c878152c35/212d556ddc6cae61-70/s640x960/095ad7bb926ba7e42a88a5da21659a0c10d54a90.pnj)

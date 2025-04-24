@@ -8,4 +8,4 @@
 
 ![rahh](https://64.media.tumblr.com/29145ff8892c78614320d8c878152c35/212d556ddc6cae61-70/s640x960/095ad7bb926ba7e42a88a5da21659a0c10d54a90.pnj)
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31m7nqeleknfajiyiw3ntxv6egqi&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31m7nqeleknfajiyiw3ntxv6egqi&redirect=true)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31m7nqeleknfajiyiw3ntxv6egqi&cover_image=false&theme=default&show_offline=false&background_color=121212&interchange=true&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31m7nqeleknfajiyiw3ntxv6egqi&redirect=true)
